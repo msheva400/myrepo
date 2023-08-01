@@ -1,1 +1,1 @@
-apart were die available plates take merely colony hospital group gather bar supper sudden however
+furniture something carry beside service verb battle nervous teach try machinery these easily another standard
