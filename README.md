@@ -1,1 +1,1 @@
-ran double television exciting area express only clothes wear arrive third four arrange sudden oil
+gun hung particular consonant attached fully only shoulder father first dance same active interest hospital
