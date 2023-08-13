@@ -1,1 +1,1 @@
-gun hung particular consonant attached fully only shoulder father first dance same active interest hospital
+view sky primitive there someone magnet space reader not frame lips wool train exchange fall
