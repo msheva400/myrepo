@@ -1,1 +1,1 @@
-field nine began wise gather write limited consonant simplest can word recall welcome sick breeze
+pay among person immediately thy gasoline audience extra southern remember highway badly wind classroom neighborhood
