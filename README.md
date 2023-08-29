@@ -1,1 +1,1 @@
-older driving mouth loss purpose hurried buffalo least twelve joy around variety said lips welcome
+syllable flame area skill great joy border recognize transportation pleasure check shall doubt may show
