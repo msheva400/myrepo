@@ -1,1 +1,1 @@
-syllable flame area skill great joy border recognize transportation pleasure check shall doubt may show
+north pair refused shape degree tight catch what our per cause hearing plane loose long
