@@ -1,1 +1,1 @@
-north pair refused shape degree tight catch what our per cause hearing plane loose long
+physical troops teacher equator harder poetry husband nation strong porch closer note school pupil create
