@@ -1,1 +1,1 @@
-physical troops teacher equator harder poetry husband nation strong porch closer note school pupil create
+label lungs combination expression belong large job human earn child handsome advice mental world upon
