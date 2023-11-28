@@ -1,1 +1,1 @@
-were flame private hard jack perfectly saddle locate lady friend chapter lonely dish method fear
+control hello everything value come enter introduced buffalo exchange bare bow smoke pair try mud
