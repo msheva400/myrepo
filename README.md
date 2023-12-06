@@ -1,1 +1,1 @@
-ground hearing bad traffic widely ruler watch different than difference subject thy touch plan continued
+alone scared now proud burst simple fifty corn step perfectly change opinion room headed roof
