@@ -1,1 +1,1 @@
-piece first practical strike enemy bicycle date powerful cloth meant dirty either north blank consonant
+gray medicine bank arrange uncle lion temperature slabs matter easily week stood seeing suddenly such
