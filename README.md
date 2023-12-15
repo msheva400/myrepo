@@ -1,1 +1,1 @@
-claws building smooth cent elephant voice stems night clearly cut winter chose obtain farmer think
+spell solid liquid burn living affect younger blow game catch bit poet classroom not blue
