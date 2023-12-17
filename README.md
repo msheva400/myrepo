@@ -1,1 +1,1 @@
-spell solid liquid burn living affect younger blow game catch bit poet classroom not blue
+rabbit telephone younger he metal stand do planned exist stretch clock troops supper truth train
