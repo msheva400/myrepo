@@ -1,1 +1,1 @@
-was morning electric satisfied easier slow cross statement grade provide seed stepped brave deal skin
+become handsome minute great frighten or receive driving represent handle sound smoke drew effort golden
