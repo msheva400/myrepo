@@ -1,1 +1,1 @@
-most best native leaving wind sure equipment adult straight sense account done must log sick
+brief riding stock distant becoming teacher certain closer weather drove worker letter rest longer saddle
